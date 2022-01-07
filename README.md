@@ -1,1 +1,0 @@
-# siyosiy_xabar
